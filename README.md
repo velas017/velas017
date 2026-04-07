@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @velas017
-- 🌱 Learning about Helix Systems and Asto Framework
+- 🌱 Using claude to solve all my problems 🥲
 - 📫 How to reach me velasquezedarsw@gmail.com
 - ⚡ Fun fact: I like working out and playing video games.
 
